@@ -1,12 +1,4 @@
-
-
 # 地藏菩萨本愿经
-
-<style>blockquote{margin-left:2rem !important;}</style>
-
-
-
-[TOC]
 
 ## 第一章 忉利天宫的神通
 
